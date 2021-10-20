@@ -13,7 +13,7 @@ By next Tuesday, 10/27/21, I should have an MVP for you that will have some of t
 If you have any questions or concerns please do not hesitate to reach out. 
 
 Kind regards,
-Mitchell 
+Mitchell C. Seiter
 
 
 
